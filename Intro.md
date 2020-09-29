@@ -1,6 +1,0 @@
-    Hello my Name is Erik Kesler.  I attanded Batavia Highschool which is about 45 minutes away from RIT.
-    My interests include anime and video games.  My favorite anine is My Hero Academia (Boku no Hero Academia).
-    My favorite video Game is a toss up between Undertale and Sonic Mania. If anyone is wondering my favorite character in each
-    of these are Mirio, Sans, and Tails respectively.  
-    
-    As for my favorite Food... check the oter files
